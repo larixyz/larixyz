@@ -49,7 +49,7 @@ Estou sempre em busca de aprendizado e evolução, com dedicação, curiosidade 
 
 ### 📫 Vamos nos conectar?
 
-- 💼 [LinkedIn](https:/www.linkedin.com/in/larissa-candido-70b199298)
+- 💼 [LinkedIn](https://www.linkedin.com/in/larissa-candido-70b199298)
 - 📧 Email: larissa.eb.candido@gmail.com
 
 ---
